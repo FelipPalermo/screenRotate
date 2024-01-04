@@ -1,0 +1,1 @@
+C:\Users\55199\Documents\rotate.pyw
